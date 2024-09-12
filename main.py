@@ -37,3 +37,7 @@ import classes
 # if skidibi rizz gyatt repo gets some people interessed ill add a cool system files delete.
 
 # else ill cry in my room.
+
+# YEEEEA BRO I CAN SWEAR!!!!!!!!
+
+#NOW FUCK EVERYONE WHO IS READING
